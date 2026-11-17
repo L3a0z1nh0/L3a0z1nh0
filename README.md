@@ -1,4 +1,4 @@
-## Bem-vindo(a) ao perfil do L3a0z1n0 😁
+## Bem-vindo(a) ao perfil do Carol 😁
 
  <div>
    <a href="https://github.com/Carolina">
